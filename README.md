@@ -10,12 +10,13 @@ egrjrljglelrgjlewljelrg
 
 erlfjelgjleglwe
 elrgnlegl
-
-
-
 erlglergl
 eglegegjlekg
 ergejlglwejglejglje
 
 This is new stuff 
 so fly a kite
+idatakimasu nohongo
+
+##kimi ni todo ek
+zXZCzsczscs
